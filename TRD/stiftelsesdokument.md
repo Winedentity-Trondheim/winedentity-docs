@@ -1,0 +1,1 @@
+# Winedentity Trondheim: Stiftelsesdokument
