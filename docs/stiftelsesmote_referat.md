@@ -1,1 +1,0 @@
-# Winedentity Trondheim: Stiftelsesmøte Refereat
